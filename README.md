@@ -1,6 +1,6 @@
 - 🔭 I’m currently working on Database
 - 🌱 I’m currently learning GitHub
-- 👯 I’m looking to collaborate on 
+- 👯 I’m looking to collaborate on ping pong with someone.
 - 🤔 I’m looking for help with Java assignments :P 
 - 💬 Ask me about ...Computers
 - 📫 How to reach me: InstaID - Karunakar_Nampally
